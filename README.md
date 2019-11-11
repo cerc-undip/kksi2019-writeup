@@ -7,3 +7,5 @@
 > Universitas Diponegoro, Semarang, Indonesia
 
 ---
+
+Updated soon, sedang siboek tuq membuat markdown-nyah ehehehe
